@@ -64,12 +64,7 @@ WE ATTEST THAT WE HAVEN’T USED ANY OTHER STUDENTS’ WORK IN OUR ASSIGNMENT
 
 AND ABIDE BY THE POLICIES LISTED IN THE STUDENT HANDBOOK
 
- ### Contributions: 
 
-- Sumanayana Konda: 25% 
-- Akshatha Patil: 25% 
-- Ruthwik Bommenahalli Gowda: 25%
-- Pavan Madhav Manikantha Sai Nainala: 25% 
 
 
 
